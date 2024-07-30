@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @cooprateAlpha
+- 👀 I’m interested in Web3, DeFi, and blockchain technologies.
+- 🌱 I’m currently learning smart contract development and decentralized application (dApp) development.
+- 💞️ I’m looking to collaborate on innovative Web3 projects and open-source initiatives.
+- 📫 How to reach me: Samijeoma03@gmail.com Telegram @E12Alpha X @Cooprerate
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm a published author of a personal development book titled 'Empower Your Journey'.
